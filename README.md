@@ -5,7 +5,7 @@
 - 🎓 Graduated in Aerospace Engineering from Kalinga Institute of Industrial Technology
 - 🌱 Currently pursuing Master's in the specialized field of Aerodynamics and Flight Mechanics
 - 👯 Open to collaborating on interesting projects
-- 📫 Reach me at: abhishekmukherjee.iist@gmail.com
+- 📫 Reach me at: abhishekmukherjee.iist@gmail.com or abhishek.sc24m001@pg.iist.ac.in
 
 ---
 
